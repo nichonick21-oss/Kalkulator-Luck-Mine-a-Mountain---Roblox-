@@ -1,2 +1,2 @@
-# Kalkulator-Luck-Mine-a-Mountain---Roblox-
+# Kalkulator-Luck-Mine-a-Mountain-Roblox-
 Kalkulator Batu
